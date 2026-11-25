@@ -1,0 +1,3 @@
+From: Dana Whitfield, Head of Card Customer Experience, Chase (fictional)
+
+"Leadership is asking why credit card complaints to the CFPB keep coming up in our risk reviews. I have budget next quarter to fix one or two customer pain points in the card experience, but I don't know where to point it. Tell me what our customers complain about most, whether it's getting better or worse, and how we compare to other big card issuers. I need a recommendation in about three weeks. Keep it short; my boss will give me 15 minutes."
